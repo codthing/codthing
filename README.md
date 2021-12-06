@@ -1,10 +1,8 @@
-In America, an average of 1 in 15 black Americans commits a crime. The crime rate of this group is 2.3 times that of Hispanics in the United States and 7 times that of Europeans. Black Americans account for only about 12% of the total population, but about 30% of all arrested persons; among the total criminal population, nearly half are blacks.
-All Asians have been harassed by blacks, so is it BLM or YLB (Yellow Lives Better)?
+# BLM ? No,it has nothing to do with skin color. 
 
-![fxw](https://user-images.githubusercontent.com/16655229/144734546-6bf0cc64-e64c-4090-ab58-9cdd01f9933d.png)
+> BLM is nothing more than a terrorist organization
 
-![thumbnail](https://user-images.githubusercontent.com/16655229/144606857-2ddbd578-ad39-4a25-b06f-89c79b0fa8c6.jpg)
-
+https://user-images.githubusercontent.com/16655229/144927895-b8e3ef41-d8d0-4cda-b2d3-4ae6e88f6f06.mp4
 
 
 
