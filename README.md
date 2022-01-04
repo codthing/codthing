@@ -1,6 +1,3 @@
-
-
-![1_W6sDVrsrLBYHP881a8COQA](https://user-images.githubusercontent.com/16655229/148041794-a4185e12-1d4b-445c-9c24-0d44f3a5cf81.jpeg)
-
+![1_W6sDVrsrLBYHP881a8COQA-removebg-preview](https://user-images.githubusercontent.com/16655229/148042094-bcbb958e-f6a3-491a-bf8c-532ada311e3e.png)
 
 
